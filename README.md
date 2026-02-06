@@ -18,4 +18,5 @@ Thank you for your patience while we finalize these improvements.
 We look forward to serving you at the highest standard.
 
 — Legendary Tax Service
+
   Please contact 256-441-5319 for all of your tax preperation needs!
